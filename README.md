@@ -1,0 +1,1 @@
+# gerenciador_esfera_Dragon-BallZ-
